@@ -26,9 +26,10 @@ https://www.instagram.com/reel/DT_cDZljGFL/?igsh=ZXZiemMyeHl1eW8y
 Youtube and Thumbnail edits
 https://youtube.com/@meyi_mo?si=mqkAVshnttI_lsKd
 
-Day in my life content 
 Smooth transitions
+
 Story telling focused edit 
+
 Thumbnail that shows colors, clarity and composition 
 
 
