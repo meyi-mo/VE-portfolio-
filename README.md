@@ -1,12 +1,13 @@
 # VE-portfolio-
 Hi, I’m Meyi — a content creator and video editor passionate about storytelling through short and long form videos.
 
-📌 About Me
 •TikTok, Instagram and Youtube video editor
 
 •Focus: lifestyle, vlogs, storytelling
 
-•Tools: CapCut, VLLO, InShot
+•Tools for edit: CapCut, VLLO, InShot
+
+•Tools for thumbnail design: Canva, Phonto, Picsart
 
 🎥 Featured Edits
 1. Days in My Life Vlog
