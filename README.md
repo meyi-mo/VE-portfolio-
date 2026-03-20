@@ -10,8 +10,7 @@ Hi, I’m Meyi — a content creator and video editor passionate about storytell
 •Tools for thumbnail design: Canva, Phonto, Picsart
 
 🎥 Featured Edits
-1. Days in My Life Vlog
- https://youtu.be/aE4BtWh1XjA?si=IQ-DAqBefukgpXAo
+1. Days in My Life Vlog https://youtu.be/aE4BtWh1XjA?si=IQ-DAqBefukgpXAo
 
  https://youtu.be/4-mi5-Flgd8?si=7PB-zqLHXv5FSaVP
 
